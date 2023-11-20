@@ -1,0 +1,1 @@
+jamkos ae terus
